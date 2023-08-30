@@ -6,7 +6,7 @@
 - 
 - Compartilhar minhas evoluções e também te ajudar a evoluir.💟
 - 
-**CONTAT0**
+**CONTAT0** 
   
   Insta: @thalia09cardoso 💜
   Gmail: thalia.silva.cardoso@escola.pr.go.br 💙
